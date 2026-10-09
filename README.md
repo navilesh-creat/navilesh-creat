@@ -25,7 +25,7 @@
 ## Work with me
 Need a website for your institute, clinic or shop?
 
-- 📧 [your professional email]
+- 📧 Sanjivkumar00212@gmail.com
 - 📱 WhatsApp / call: +91 6284729381
 - 🌐 [Portfolio](https://navilesh-creat.github.io/Portfolio/)
 - 💼 [LinkedIn](https://www.linkedin.com/in/navilesh-bhatti-393982439)
